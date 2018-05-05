@@ -1,1 +1,0 @@
-# Politica-de-privacidade-aulas-da-autoescola
